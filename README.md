@@ -1,3 +1,5 @@
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/D1D13TVEF)
+
 ### Hi there 👋
 
 🔭 I’m currently working on My personal website
