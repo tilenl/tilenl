@@ -8,7 +8,7 @@
 
 📫 How to reach me: tilenlampret1@gmail.com
 
-🌐 Personal website: [tilenlampret.com](tilenlampret.com)
+🌐 Personal website: [tilenlampret.com](https://tilenlampret.com/)
 
 💬 I'm open to talk 🤗
 
