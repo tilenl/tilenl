@@ -2,7 +2,7 @@
 
 ### Hi there 👋
 
-🌱 I'm currently learning Godot engine
+🌱 I'm currently working on WFC thesis
 
 
 
